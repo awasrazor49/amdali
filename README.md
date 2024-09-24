@@ -1,0 +1,2 @@
+# amdali
+sayang kamu
